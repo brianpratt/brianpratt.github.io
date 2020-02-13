@@ -1,1 +1,0 @@
-# brianpratt.github.io
